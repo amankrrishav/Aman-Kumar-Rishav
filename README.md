@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wanheda089
+- 👋 Hi, I’m @aman-kr-rishav
 - 👀 I’m interested in ... learning coding and programming 
 - 🌱 I’m currently learning ...coding 
 - 💞️ I’m looking to collaborate with anyone who can offer part time work 
