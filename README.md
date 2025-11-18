@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aman-kr-rishav
 - 👀 I’m interested in ... learning coding and programming 
-- 🌱 I’m currently learning ...coding 
+- 🌱 I’m currently learning ...and upgrading my skills to  contribute in tech and ai fields
 - 💞️ I’m looking to collaborate with anyone who can offer part time work 
 - 📫 How to reach me ... my instagram handle - @amankrrishav
 
